@@ -38,7 +38,7 @@ Research Interests
 
 Honors and Awards
 ======
-* Zhiyuan Honor Scholarship, Shanghai Jiao Talong University, 2024
+* Zhiyuan Honor Scholarship, Shanghai Jiao Tong University
 
 Publications
 ======
